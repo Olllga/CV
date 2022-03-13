@@ -1,3 +1,3 @@
 # Up-to-date CV
 
-[CV](/CV: v04.20.pdf)
+[CV](/CV:%20v04.20.pdf)
